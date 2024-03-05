@@ -118,6 +118,7 @@ By completing this reflection, you will gain a clearer understanding of your car
     - Consider strategies to overcome these challenges.
     To overcome the lack of motivation I will strive to make my achievements throughout the journey very rewarding so that i'm always keen to achieve the next milestone.
     To avoid a change of interest I opted for a path that aligns with my personal interests.
+    
 2. **Opportunities for Growth**:
     
     - Highlight any opportunities you can leverage for career growth.
